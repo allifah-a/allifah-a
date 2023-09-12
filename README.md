@@ -1,36 +1,34 @@
- 🫶 HAIIII GUYS, WELCOME TO MY PROFILE 🫶 
+🫶 HAIIII GUYS, WELCOME TO MY PROFILE 🫶 
  
  
- https://www.canva.com/design/DAFuNy03W0g/AiuVlJALpCtFIE2W5pE4bw/edit?utm_content=DAFuNy03W0g&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+[![Green-Colorful-Cartoon-Illustrative-Animal-Farm-Presentation.png](https://i.postimg.cc/8Cw1zYrv/Green-Colorful-Cartoon-Illustrative-Animal-Farm-Presentation.png)](https://postimg.cc/7CGvBm9P)
  
  
  Let me intruduce my self 👋
 
-  I'm Allifah Aulia Maghfiroh From Undergraduate Geophysics Student ad University of Gadjah Mada
+ I am Allifah Aulia Maghfiroh from an undergraduate student in Geophysics at Gadjah Mada University
  🏫
 
-I like geology lessons, where I study the earth and all its contents 🗻
+I like geology lessons, where I study the earth and everything in it🗻
 
-I like to making other people smiling, cause is that I can smilling too 🤩
+I like making other people smile, that's why I can smile too 🤩
 
-all nadin amizah's song is my daily music 💃 💅
-I love matcha a lot n and now I just tyring to be best part of me 
-
+all of Nadin Amizah's songs have become my daily music 💃 💅
+I really love matcha and now I will try to make it the best part of me
 
 <a href="https://ibb.co/hyhQbbZ"><img src="https://i.ibb.co/hyhQbbZ/Screenshot-2.png" alt="Screenshot-2" border="0" /></a>
 
 
+
+
+
 <a href="https://ibb.co/qpfMHFn"><img src="https://i.ibb.co/YhM75TW/Screenshot-3.png" alt="Screenshot-3" border="0" /></a
-                                                                                                                        
 
-
-<a href="https://ibb.co/qpfMHFn"><img src="https://i.ibb.co/YhM75TW/Screenshot-3.png" alt="Screenshot-3" border="0" /></a>
-
+<a href="https://ibb.co/nRqmS0h"><img src="https://i.ibb.co/QX7QGcs/image.png" alt="image" border="0" /></a>
 
 <a href="https://ibb.co/3Cc5C6X"><img src="https://i.ibb.co/5RLXRpD/Screenshot-5.png" alt="Screenshot-5" border="0" /></a>
 
-
-<a href="https://ibb.co/sVRCBVs"><img src="https://i.ibb.co/4Vt2QV4/image.png" alt="image" border="0" /></a>
-
+<a href="https://ibb.co/h2PKksD"><img src="https://i.ibb.co/Yfzt62p/image.png" alt="image" border="0" /></a>
 
 
+<a href="https://ibb.co/fxFWkWc"><img src="https://i.ibb.co/x7Lb1b4/image.png" alt="image" border="0" /></a>
